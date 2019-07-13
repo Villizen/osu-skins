@@ -7,3 +7,5 @@ The skins i mainly use
 
 # [_-Vill-_](http://www.mediafire.com/file/hrwshq26wz22vu4/_-Vill-_.osk/file)
 ![](https://osu.ppy.sh/ss/13246498)
+
+# [_Other random skins_](https://drive.google.com/drive/folders/1x8rp7_CdSw60z-zf4vvfv7p0BmDa189f)
